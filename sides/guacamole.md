@@ -18,5 +18,5 @@
 - chop chili
 - squeeze lime
 - add salt
-- and mix perfectly
+- and mix perfectly!
 - enjoy!
